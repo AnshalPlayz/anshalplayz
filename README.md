@@ -6,8 +6,7 @@
 
 ## 🚀 **About the Project**
 
-**AnshalPlayz** 
-This Is My Official Website Files
+**AnshalPlayz** Hand-Maded Website
 
 ---
 
